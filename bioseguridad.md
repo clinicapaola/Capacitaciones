@@ -48,4 +48,6 @@ Higiene de Manos
 Uniforme de Mayo
 Zapatos Cerrados
 
+Limpieza de Desifecion de Areas, Equipo, Reuso, Todo Documentado, Referencias Bibliograficas
+
 
