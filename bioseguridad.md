@@ -37,4 +37,8 @@ Los principios de bioseguridad estandar son universales
 
 
 - Especificar Cuando y conque se van a lavar las monogafas y la careta. 
-- 
+
+- Uso apropiado del Tapabocas, como colocarlo y como retirarlo, no dejar el tapabocas en un lugar diferente a su empaque original. No usarlo por mas de 6 horas. 
+- La mascarilla de alta eficiencia(Filtros especiales) no puede ser mas usada de 8 horas.
+
+
